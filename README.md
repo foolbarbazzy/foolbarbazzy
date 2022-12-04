@@ -1,2 +1,2 @@
-### foolbar or kayleigh!
-she/her or they/them!<br>
+## just fooling around!
+[youtube](https://www.youtube.com/@foolbar)
